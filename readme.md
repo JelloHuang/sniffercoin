@@ -1,0 +1,1 @@
+For [Sniffercoin.com](www.Sniffercoin.com)
